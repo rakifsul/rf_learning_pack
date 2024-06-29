@@ -68,3 +68,7 @@ Oleh karena itu, belajar coding adalah kesempatan yang baik untuk menerapkannya.
 Ok, jadi itu saja ya.
 
 Selamat menikmati...
+
+## G. Link untuk Traktir
+
+- https://karyakarsa.com/rakifsul
